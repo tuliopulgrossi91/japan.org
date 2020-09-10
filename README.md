@@ -1,2 +1,2 @@
-# japan.org
+# Japan.org
 Recomendações para estudar Japonês!.
